@@ -5,6 +5,11 @@ Farmers face daily challenges such as assessing soil health, detecting plant dis
 
 
 
+https://github.com/user-attachments/assets/028f87a7-b28d-4ddd-8275-667f2467109a
+
+
+
+
 ![image](https://github.com/user-attachments/assets/79f862a4-de31-4182-be18-c810baa29549)
 
 ![image](https://github.com/user-attachments/assets/21d90833-9fdb-41e2-92b0-49f7b292ee86)
